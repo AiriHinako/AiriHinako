@@ -5,7 +5,7 @@
 - I’m currently learning **JavaScript**... **COULD BE I GUESS!**
 - I’m looking for help with **my bnnuy** *(she doesn't stop trying to eat the cables of my house)*.
 - Ask me about how much **I can sleep in a day!**
-- How to reach me: **emerosheena** *(that's my Discord username!)*
+- How to reach me: **running I guess** *(I'll update this later)*
 - Pronouns: **she/her**
 
 ### Thanks for reading this.
